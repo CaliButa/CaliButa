@@ -1,1 +1,1 @@
-Un jam buta ma i smuti
+B**** un jam buta ma i smuti
