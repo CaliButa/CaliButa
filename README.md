@@ -1,1 +1,1 @@
-un jom njeri i therrt   05 05 05 05 KS WHAT DOESNT KILL YOU MAKE YOU STRONGER ALBANIAAAAAAAAAAAAAAAAA
+Un jam buta ma i smuti
